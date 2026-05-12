@@ -1,4 +1,4 @@
-# 
+# Get the ultimate nft trading bot with secure NFT Rarity Sniper for nft trading bot | mint-detection & take-profit. Featuring mint-detection and take-profit, it's the best choice
 
 
 
